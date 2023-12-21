@@ -1,2 +1,0 @@
-# Amaro_KobeBryan
-help
